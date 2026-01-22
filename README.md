@@ -1,4 +1,4 @@
-now publish in 
+Now publish in 
 personal blog www.kisara.art
 
 and
@@ -6,7 +6,7 @@ spacebattles https://forums.spacebattles.com/threads/the-send-off-%E2%80%94-a-x4
 
 
 
-and FFN https://www.fanfiction.net/s/14541439/1/The-Send-Off https://www.fanfiction.net/s/14541439/1/The-Send-Off
+or FFN https://www.fanfiction.net/s/14541439/1/The-Send-Off https://www.fanfiction.net/s/14541439/1/The-Send-Off
 
 
 FFN-CN Original（New Antigone series updating...）https://www.fanfiction.net/story/story_edit_property.php?storyid=14541443
