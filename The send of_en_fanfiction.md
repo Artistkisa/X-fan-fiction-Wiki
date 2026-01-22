@@ -168,8 +168,8 @@ Too calm. Too still.
 
 Lev opened his eyes. Looked at the photo taped on the cockpit wall—him and Leia, young, smiling, in front of a Theseus-class cargo bay door and the aurora dome of Antigone Memorial Sector.
 
-Photo taken NT 741.
-Dome destroyed NT 764.
+Photo taken NT 841.
+Dome destroyed NT 864.
 Leia died somewhere between.
 
 "Not waiting," he said.
